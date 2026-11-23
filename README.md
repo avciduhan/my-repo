@@ -1,1 +1,1 @@
-#ilk projem
+#conflictleri çözüyorum.
